@@ -35,21 +35,4 @@ Personal GitHub Pages site for davidepicano
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-MpZmIx
-
-PVPH30N
+L0bfS
