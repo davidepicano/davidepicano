@@ -31,22 +31,4 @@ Personal GitHub Pages site for davidepicano
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-JA2HZK
+0uUiot
