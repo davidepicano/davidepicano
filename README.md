@@ -39,12 +39,4 @@ Personal GitHub Pages site for davidepicano
 
 
 
-
-
-
-
-
-
-
-
-S3RLMces9
+ogyXV
