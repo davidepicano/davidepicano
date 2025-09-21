@@ -39,12 +39,4 @@ Personal GitHub Pages site for davidepicano
 
 
 
-
-
-
-
-
-
-
-
-CbVkZ91ai
+Wc7ck
