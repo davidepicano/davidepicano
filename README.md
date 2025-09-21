@@ -27,28 +27,4 @@ Personal GitHub Pages site for davidepicano
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-r7WBLs
+qXIVp
