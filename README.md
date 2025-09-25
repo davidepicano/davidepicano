@@ -1,4 +1,4 @@
-# davidepicano.github.io
+# davidepicano
 Personal GitHub Pages site for davidepicano
 
 
